@@ -1,5 +1,4 @@
 hoa mundo
- Somos de italia de la mafia de los gambinos att Marcelo Shelby
 
 "Tienen ordenadores, y pueden tener otras armas de destrucción masiva" --Janet Reno
 
